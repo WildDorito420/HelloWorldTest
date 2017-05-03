@@ -1,2 +1,10 @@
-This is a readme file
-# hey now youre and all star
+# Sierra
+# Echo
+# November
+# Delta
+
+# November
+# Uniform
+# Delta
+# Echo
+# Sierra
